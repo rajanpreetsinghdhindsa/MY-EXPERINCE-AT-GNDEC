@@ -22,3 +22,9 @@ unexpectedly , DR.H.S Rai selected 10  students to work with him .then lists goe
 **DAY 3**
 
 WE got chance to learn about human values as recommeded by AICTE,we all learned about ethical and moral values.After that, we got chance to interect with seniors means peer interaction .In that they told about how to use collage website and about internal and ecternal papers and other things about collage. 
+
+***
+
+**DAY4** 
+
+On the day 4.ALL the students of **IT DEPARMENTS** have visit to their respectively deparments.In which we see different labs and interact with our IT profesor they guide us and motivates us to do hard work 
